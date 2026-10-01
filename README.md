@@ -1,2 +1,2 @@
 # GitHub-Intro
-A simple repository for learning Git and GitHub.
+wats ur love language pi??? („• ֊ •„)
